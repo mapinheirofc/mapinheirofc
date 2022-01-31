@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mapinheirofc
+- 👀 I’m interested in digital business
+- 🌱 I’m currently learning how to be a better person
+- 💞️ I’m looking to collaborate on the FoxBit mobile team
+- 📫 How to reach me: mateus.pinheiro@fcamara.com.br
